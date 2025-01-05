@@ -1,4 +1,4 @@
 # Assets
 
 
-![srmistedu](https://github.com/user-attachments/assets/5df066e1-8b09-413d-af08-09d71cf58965)
+![srmistedu](https://github.com/user-attachments/assets/810d59d0-a790-4f89-b172-e5efd7aee9a7)
